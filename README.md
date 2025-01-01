@@ -20,17 +20,21 @@ After the game ends, you can choose to play again or exit.
 
 
 
-![image](https://github.com/user-attachments/assets/b3e9e539-c98d-42a5-bd3f-80a9fc889c1e)
+![Screenshot 2025-01-01 234144](https://github.com/user-attachments/assets/8429782d-1459-4c09-97bf-ffd1d57ef687)
 
 
-![image](https://github.com/user-attachments/assets/b255c0ad-51dd-4d69-9bd9-4e42b4e101fe)
+![Screenshot 2025-01-01 233905](https://github.com/user-attachments/assets/e02bbe5b-390e-4f9f-98cb-ee2df9728a3e)
 
 
-![image](https://github.com/user-attachments/assets/73511518-0bf2-4114-b148-cd609f87f0b3)
+![Screenshot 2025-01-01 234237](https://github.com/user-attachments/assets/4605f139-66dd-4c49-9af7-4457b03aa5d1)
 
 
-![image](https://github.com/user-attachments/assets/6557b84b-3640-44d3-aa80-b68181f43d77)
+![image](https://github.com/user-attachments/assets/0472592d-170c-4857-b805-2ae2a6f601e3)
 
 
-![image](https://github.com/user-attachments/assets/d34c67c0-fb34-4454-912c-fc324ffc5abb)
+
+![Screenshot 2025-01-01 234237](https://github.com/user-attachments/assets/d2469908-84e7-42df-b24a-20abc1dee254)
+
+
+![Screenshot 2025-01-01 234323](https://github.com/user-attachments/assets/05c96e07-aa36-4264-9aae-f57bf102a62f)
 
