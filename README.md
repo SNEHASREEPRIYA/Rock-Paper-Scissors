@@ -29,11 +29,12 @@ After the game ends, you can choose to play again or exit.
 ![Screenshot 2025-01-01 234237](https://github.com/user-attachments/assets/4605f139-66dd-4c49-9af7-4457b03aa5d1)
 
 
-![image](https://github.com/user-attachments/assets/0472592d-170c-4857-b805-2ae2a6f601e3)
+![Screenshot 2025-01-02 001349](https://github.com/user-attachments/assets/2f240e08-47a2-48c2-adc9-dd5af7fd95f9)
 
 
 
-![Screenshot 2025-01-01 234237](https://github.com/user-attachments/assets/d2469908-84e7-42df-b24a-20abc1dee254)
+![Screenshot 2025-01-01 234300](https://github.com/user-attachments/assets/e3d17ffc-d4b6-4f7d-9654-55251f84ed0b)
+
 
 
 ![Screenshot 2025-01-01 234323](https://github.com/user-attachments/assets/05c96e07-aa36-4264-9aae-f57bf102a62f)
